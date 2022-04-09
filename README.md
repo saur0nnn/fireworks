@@ -1,2 +1,1 @@
-# fireworks
-banzi feiverkebi saurnolisgan
+# banzi feiverkebi saurnolisgan
